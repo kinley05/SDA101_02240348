@@ -1,0 +1,2 @@
+# SDA101_02240348 https://www.figma.com/design/uaZwmPWdQqsbvFUbWZ2mhN/Assignment?node-id=0-1&t=g4qa3A6BMMtPqnrv-1
+# SDA101_02240348 https://www.figma.com/design/G77vlRZyIldnKSVp4AAYHx/personal-profile?t=KUtuzOcDvKL95HCg-1
